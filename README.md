@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **mviougea@icloud.com**
 
-- ⚡ Fun fact **I am excited about the idea of ​​learning new technology and optimizing the way I code my applications**
+- ⚡ Fun fact **I got too excited about the idea of ​​learning new technology and optimizing the way I code my applications**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
